@@ -14,18 +14,20 @@
 
 ### Systemic Racism
 - [Explainer: what is systemic racism and institutional racism?](https://theconversation.com/explainer-what-is-systemic-racism-and-institutional-racism-131152)
-<br> If you don't understand the idea of systemic racism or don't think it exists in this country, read this. Systemic racism goes beyond anecdotes-- it's ingrained in our nation's very foundations. 
+<br> If you don't understand the idea of systemic racism or don't think it exists in this country, read this. Systemic racism goes beyond anecdotes-- it's cemented in our nation's very foundations. 
 - [The 1619 Project](https://www.nytimes.com/interactive/2019/08/14/magazine/1619-america-slavery.html)
+<br>A series of articles. “The 1619 Project is an ongoing initiative from The New York Times Magazine that began in August 2019, the 400th anniversary of the beginning of American slavery. It aims to reframe the country’s history by placing the consequences of slavery and the contributions of black Americans at the very center of our national narrative.”
 - [Color-Blindness Is Counterproductive](https://www.theatlantic.com/politics/archive/2015/09/color-blindness-is-counterproductive/405037/)
 - For deeper reading: [Examining the Impact of Institutional Racism in
 Black Residentially Segregated Communities](https://digitalscholarship.tsu.edu/cgi/viewcontent.cgi?article=1032&context=rbjpa
 )
+<br> A thorough report on America’s history of structural and institutional racism that limits the opportunities of Black Americans. It is easy to overlook these factors and label Blacks as “lazy” or to blame inequalities on a shared “Black culture;” however doing so would ignore an entire history of oppression that is ingrained in all of our lives and institutions. 
 
 ### Police Brutality
 - [Running While Black](https://www.nytimes.com/2020/05/18/sports/running-while-black-ahmaud-arbery.html?action=click&block=associated_collection_recirc&impression_id=422833576&index=1&pgtype=Article&region=footer)
 <br>Exercise empathy. Put yourself in someone else’s shoes. NYT Readers share what it’s like running while black in the wake of Ahmaud Arbery’s fatal shooting.
 - [Police officers convicted for fatal shootings are the exception, not the rule](https://www.nbcnews.com/news/nbcblk/police-officers-convicted-fatal-shootings-are-exception-not-rule-n982741)
-<br> “Nearly five years after Michael Brown’s death and mass protests in Ferguson, Missouri, sparked a national conversation about policing, a set of patterns have emerged. Those killed are disproportionately black and more often than not blamed for their own deaths or demonized in the process. Police officers facing questions about the use of force do not always tell the truth or face penalties when they lie. Prosecutors who must face voters at election time and work with police officers each day are often loathe to bring charges. When they do, juries and judges are reticent to convict.”
+<br> You want stats? “Nearly five years after Michael Brown’s death and mass protests in Ferguson, Missouri, sparked a national conversation about policing, a set of patterns have emerged. Those killed are disproportionately black and more often than not blamed for their own deaths or demonized in the process. Police officers facing questions about the use of force do not always tell the truth or face penalties when they lie. Prosecutors who must face voters at election time and work with police officers each day are often loathe to bring charges. When they do, juries and judges are reticent to convict.”
 
 
 
