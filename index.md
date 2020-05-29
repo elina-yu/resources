@@ -7,7 +7,7 @@ Addressing the model minority myth in the context of [an article written by Andr
 Some people believe that Asian Americans are more successful because we “grind” harder. This article presents research that shows the real reason is because Asian Americans started receiving better opportunities on average because of postwar racial attitudes.
 
 ### Stroll and EDM: The origins of culture you participate in
-"As participants in hip hop culture, we think it is CRUCIAL to express the fundamental beliefe that black LIVES matter. Not just black cultural products, like hip hop. We would not be here without the BLACK LIVES responsible for creating the art form we practice every day. We will not be complicit in the erasure of black bodies from the mainstream of the culture." - Jillian Roberts, Mint Dance Team.
+"As participants in hip hop culture, we think it is CRUCIAL to express the fundamental belief that black LIVES matter. Not just black cultural products, like hip hop. We would not be here without the BLACK LIVES responsible for creating the art form we practice every day. We will not be complicit in the erasure of black bodies from the mainstream of the culture." - Jillian Roberts, Mint Dance Team.
 #### - [From Death Marches to Dance Halls: A Brief History of Strolling](https://youtu.be/DgSb6x1YuXE) [video]
 #### - [3 Ways to Share Our Stepping & Strolling Traditions Without Giving Away Our Culture](https://www.watchtheyard.com/stroll/3-ways-to-share-our-stepping-strolling-traditions-without-giving-away-our-culture/)
 #### - [Gay Black Men Helped Create EDM. Why Do Straight White Men Dominate It?](https://www.billboard.com/articles/news/pride/8460757/gay-black-men-edm-influence-history)
