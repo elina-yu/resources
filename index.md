@@ -21,8 +21,7 @@ If you don't understand the idea of systemic racism or don't think it exists in 
 A series of articles. “The 1619 Project is an ongoing initiative from The New York Times Magazine that began in August 2019, the 400th anniversary of the beginning of American slavery. It aims to reframe the country’s history by placing the consequences of slavery and the contributions of black Americans at the very center of our national narrative.”
 #### - [Color-Blindness Is Counterproductive](https://www.theatlantic.com/politics/archive/2015/09/color-blindness-is-counterproductive/405037/)
 “Many sociologists, though, are extremely critical of colorblindness as an ideology. They argue that as the mechanisms that reproduce racial inequality have become more covert and obscure than they were during the era of open, legal segregation, the language of explicit racism has given way to a discourse of colorblindness. But they fear that the refusal to take public note of race actually allows people to ignore manifestations of persistent discrimination.”
-#### - For deeper reading: [Examining the Impact of Institutional Racism in
-Black Residentially Segregated Communities](https://digitalscholarship.tsu.edu/cgi/viewcontent.cgi?article=1032&context=rbjpa
+#### - For deeper reading: [Examining the Impact of Institutional Racism in Black Residentially Segregated Communities](https://digitalscholarship.tsu.edu/cgi/viewcontent.cgi?article=1032&context=rbjpa
 )
 A thorough report on America’s history of structural and institutional racism that limits the opportunities of Black Americans. It is easy to overlook these factors and label Blacks as “lazy” or to blame inequalities on a shared “Black culture;” however doing so would ignore an entire history of oppression that is ingrained in all of our lives and institutions. 
 
