@@ -19,7 +19,7 @@ Black Residentially Segregated Communities](https://digitalscholarship.tsu.edu/c
 )
 ### Police Brutality
 - [Running While Black](https://www.nytimes.com/2020/05/18/sports/running-while-black-ahmaud-arbery.html?action=click&block=associated_collection_recirc&impression_id=422833576&index=1&pgtype=Article&region=footer)
-<br>Exercise empathy.. Put yourself in someone else’s shoes. NYT Readers share what it’s like running while black in the wake of Ahmaud Arbery’s fatal shooting.
+<br>Exercise empathy. Put yourself in someone else’s shoes. NYT Readers share what it’s like running while black in the wake of Ahmaud Arbery’s fatal shooting.
 - [Police officers convicted for fatal shootings are the exception, not the rule](https://www.nbcnews.com/news/nbcblk/police-officers-convicted-fatal-shootings-are-exception-not-rule-n982741)
 <br> “Nearly five years after Michael Brown’s death and mass protests in Ferguson, Missouri, sparked a national conversation about policing, a set of patterns have emerged. Those killed are disproportionately black and more often than not blamed for their own deaths or demonized in the process. Police officers facing questions about the use of force do not always tell the truth or face penalties when they lie. Prosecutors who must face voters at election time and work with police officers each day are often loathe to bring charges. When they do, juries and judges are reticent to convict.”
 
