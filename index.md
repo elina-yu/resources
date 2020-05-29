@@ -1,7 +1,7 @@
 # A Reading List
 
 ### Asian Americans and the Model Minority Myth 
-- [Model Minority' Myth Again Used As A Racial Wedge Between Asians And Blacks](https://www.npr.org/sections/codeswitch/2017/04/19/524571669/model-minority-myth-again-used-as-a-racial-wedge-between-asians-and-blacks)
+- ['Model Minority' Myth Again Used As A Racial Wedge Between Asians And Blacks](https://www.npr.org/sections/codeswitch/2017/04/19/524571669/model-minority-myth-again-used-as-a-racial-wedge-between-asians-and-blacks)
 <br> Addressing the model minority myth in the context of [an article written by Andrew Sullivan](https://nymag.com/intelligencer/2017/04/why-do-democrats-feel-sorry-for-hillary-clinton.html) and exploring the ways in which this myth has been fueled by political convenience and racial resentment.
 - [The real secret to Asian American success was not education](https://www.washingtonpost.com/news/wonk/wp/2016/11/19/the-real-secret-to-asian-american-success-was-not-education/)
 <br> Some people believe that Asian Americans are more successful because we “grind” harder. This article presents research that shows the real reason is because Asian Americans started receiving better opportunities on average because of postwar racial attitudes.
