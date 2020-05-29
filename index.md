@@ -11,6 +11,8 @@
 - [From Death Marches to Dance Halls: A Brief History of Strolling](https://youtu.be/DgSb6x1YuXE) [video]
 - [3 Ways to Share Our Stepping & Strolling Traditions Without Giving Away Our Culture](https://www.watchtheyard.com/stroll/3-ways-to-share-our-stepping-strolling-traditions-without-giving-away-our-culture/)
 - [Gay Black Men Helped Create EDM. Why Do Straight White Men Dominate It?](https://www.billboard.com/articles/news/pride/8460757/gay-black-men-edm-influence-history)
+- [What Defines Cultural Appropriation?](https://www.youtube.com/watch?v=PwEMVEmeubk) [video]
+<br>i-D asked creators their opinions on where the line between cultural appropriation and appreciation exists. 
 
 ### Systemic Racism
 - [Explainer: what is systemic racism and institutional racism?](https://theconversation.com/explainer-what-is-systemic-racism-and-institutional-racism-131152)
@@ -18,6 +20,7 @@
 - [The 1619 Project](https://www.nytimes.com/interactive/2019/08/14/magazine/1619-america-slavery.html)
 <br>A series of articles. “The 1619 Project is an ongoing initiative from The New York Times Magazine that began in August 2019, the 400th anniversary of the beginning of American slavery. It aims to reframe the country’s history by placing the consequences of slavery and the contributions of black Americans at the very center of our national narrative.”
 - [Color-Blindness Is Counterproductive](https://www.theatlantic.com/politics/archive/2015/09/color-blindness-is-counterproductive/405037/)
+<br> “Many sociologists, though, are extremely critical of colorblindness as an ideology. They argue that as the mechanisms that reproduce racial inequality have become more covert and obscure than they were during the era of open, legal segregation, the language of explicit racism has given way to a discourse of colorblindness. But they fear that the refusal to take public note of race actually allows people to ignore manifestations of persistent discrimination.”
 - For deeper reading: [Examining the Impact of Institutional Racism in
 Black Residentially Segregated Communities](https://digitalscholarship.tsu.edu/cgi/viewcontent.cgi?article=1032&context=rbjpa
 )
