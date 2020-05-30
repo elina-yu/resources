@@ -10,11 +10,13 @@ Some people believe that Asian Americans are more successful because we “grind
 
 ### Stroll and EDM: The origins of culture you participate in
 "As participants in hip hop culture, we think it is CRUCIAL to express the fundamental belief that black LIVES matter. Not just black cultural products, like hip hop. We would not be here without the BLACK LIVES responsible for creating the art form we practice every day. We will not be complicit in the erasure of black bodies from the mainstream of the culture." - Jillian Roberts, Mint Dance Team.
+#### - [What Defines Cultural Appropriation?](https://www.youtube.com/watch?v=PwEMVEmeubk) [video]
+i-D asked creators their opinions on the line between cultural appropriation and appreciation. 
+#### -[Asian hip hop: an homage to a genre or cultural appropriation driven by racism or ignorance?](https://www.scmp.com/lifestyle/fashion-beauty/article/2148143/asian-hip-hop-homage-genre-or-cultural-appropriation-driven)
+Discussing the ways in which Asian hip hop has been influenced by and takes from black culture at the same time many Asian cultures continue to perpetuate negative stereotypes about people with darker skin.
 #### - [From Death Marches to Dance Halls: A Brief History of Strolling](https://youtu.be/DgSb6x1YuXE) [video]
 #### - [3 Ways to Share Our Stepping & Strolling Traditions Without Giving Away Our Culture](https://www.watchtheyard.com/stroll/3-ways-to-share-our-stepping-strolling-traditions-without-giving-away-our-culture/)
 #### - [Gay Black Men Helped Create EDM. Why Do Straight White Men Dominate It?](https://www.billboard.com/articles/news/pride/8460757/gay-black-men-edm-influence-history)
-#### - [What Defines Cultural Appropriation?](https://www.youtube.com/watch?v=PwEMVEmeubk) [video]
-i-D asked creators their opinions on where the line between cultural appropriation and appreciation exists. 
 
 ### Systemic Racism
 #### - [Explainer: what is systemic racism and institutional racism?](https://theconversation.com/explainer-what-is-systemic-racism-and-institutional-racism-131152)
