@@ -1,4 +1,5 @@
 # A Reading List
+Articles and videos for those in the Asian American community who have yet to confront their own biases and complicity in a racist system.
 
 ## Asian Americans and the Model Minority Myth 
 #### - ['Model Minority' Myth Again Used As A Racial Wedge Between Asians And Blacks](https://www.npr.org/sections/codeswitch/2017/04/19/524571669/model-minority-myth-again-used-as-a-racial-wedge-between-asians-and-blacks)
